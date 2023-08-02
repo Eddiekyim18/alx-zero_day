@@ -1,1 +1,1 @@
-my first readme
+god is in control
